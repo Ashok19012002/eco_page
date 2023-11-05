@@ -30,6 +30,7 @@ Pravar Pera
 📢 Community Engagement: By fostering a sense of responsibility and reward, Eco Page brings people together for a common cause: protecting our environment.
 
 We're passionate about using technology to make a positive impact, and Eco Page is a testament to our collective commitment. I invite you to explore the project and share your thoughts. Let's work together to create a more sustainable future! 🌟
+c
 
 
 Thank you for joining us on this eco-friendly journey! 🌎🌿
